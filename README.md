@@ -1,4 +1,4 @@
-# Hi there, I'm McNeil] 👋
+# Hi there, I'm McNeil👋
 
 ## 🚀 About Me
 I'm a passionate **Data Analyst** with expertise in **Power BI**, SQL, and data visualization. I love turning raw data into meaningful insights to drive business decisions. 
