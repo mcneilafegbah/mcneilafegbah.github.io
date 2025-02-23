@@ -19,4 +19,4 @@ Here are some of my recent projects:
 - 💼 [LinkedIn](https://www.linkedin.com/in/mcneilafegbah)
 
 
-Let's collaborate on something great! 🚀
+Let's collaborate on something great!! 🚀
